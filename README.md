@@ -21,5 +21,5 @@
 - [ ] $6,000 CAD living allowance ($200/week)
 - [ ] $200 CAD for books and supplies
 - [ ] $500 CAD for tutoring
-= [ ] $200 CAD for community events
+- [ ] $200 CAD for community events
 - [ ] $140 CAD for membership
