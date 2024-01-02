@@ -7,7 +7,7 @@
 - [ ] $500 CAD for tutoring
 - [ ] $200 CAD for community events
 - [ ] $140 CAD for membership
-- [ ] $303.70 CAD for semester bus pass
+- [ ] $303.70 CAD for a semester bus pass (or $89.30 CAD monthly)
 
 Laptop required, but there is no number on how much the laptop should cost. Estimates only; subject to change. Does not include other costs of living such as rent, groceries and utilities.
 ## Wrapping Up
