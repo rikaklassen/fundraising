@@ -1,6 +1,9 @@
 # Fundraising
 ## Active
 ### Second Year
+The friend whom I promised to support in 2021 is part of two to three years college program. I want to make good on these promises. She decided to take a year off for 2022 - 2023.
+
+Here are the adjusted tutiion and fees for 2023:
 - [ ] $6,077 CAD for tuition and student fees (per year)
 - [ ] $6,000 CAD living allowance ($200/week)
 - [ ] $200 CAD for books and supplies
