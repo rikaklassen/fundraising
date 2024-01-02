@@ -13,6 +13,8 @@ Here are the adjusted tutiion and fees for 2023:
 - [ ] $303.70 CAD for a semester bus pass (or $89.30 CAD monthly)
 
 Laptop required, but there is no number on how much the laptop should cost. Estimates only; subject to change. Does not include other costs of living such as rent, groceries and utilities.
+
+She does have a [PayPal account](https://www.paypal.me/bglamours).
 ## Wrapping Up
 ### First Year (2021 - 2022)
 I have a dear friend going to school full-time without support from the government and has to take on extra shifts. The federal government has cut back on CERB (Canada Emergency Response Benefit) and student loans are arriving late. As the result, she is struggling to study and asked for financial assistance.
@@ -29,6 +31,8 @@ She will need:
 - [ ] $339.20 CAD for student bus passes ($84.80 CAD monthly)
 
 Does not include rent ($840 CAD/month), utilities or other costs of living.
+
+She does have a [PayPal account](https://www.paypal.me/bglamours) of her own.
 ## Pending
 ### Third Year
 - [ ] $6,077 CAD for tuition and student fees (per year)
@@ -39,3 +43,5 @@ Does not include rent ($840 CAD/month), utilities or other costs of living.
 - [ ] $140 CAD for membership
 
 Not final. Estimates only; subject to change.
+
+Future funds can go towards her [PayPal](https://www.paypal.me/bglamours).
