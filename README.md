@@ -26,7 +26,7 @@ She will need:
 - [x] ~~$500 CAD for tutoring~~
 - [x] ~~$200 CAD for community events~~
 - [x] ~~$180 CAD for the teaching program subscription~~
-- [ ] ~~$339.20 CAD for student bus passes ($84.80 CAD monthly)~~
+- [ ] $339.20 CAD for student bus passes ($84.80 CAD monthly)
 
 Does not include rent, utilities or other costs of living.
 ## Pending
