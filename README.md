@@ -20,6 +20,8 @@ She does have a [PayPal account](https://www.paypal.me/bglamours).
 - [ ] Aranet4 air quality meter
 - [ ] Corsi–Rosenthal boxes
 - [ ] Sensirion SCD4x portable USB CO2 meter
+
+You can contribute directly to the COVID fund [via PayPal](https://www.paypal.me/bglamours).
 ## Wrapping Up
 ### First Year (2021 - 2022) of College
 I have a dear friend going to school full-time without support from the government and has to take on extra shifts. The federal government has cut back on CERB (Canada Emergency Response Benefit) and student loans are arriving late. As the result, she is struggling to study and asked for financial assistance.
