@@ -19,7 +19,9 @@ She does have a [PayPal account](https://www.paypal.me/bglamours).
 - [ ] Airthereal AGH550 HEPA filter
 - [ ] Aranet4 air quality meter
 - [ ] Corsi–Rosenthal boxes
+- [ ] [DIY travel air filter](https://cleanaircrew.org/personal-air-filters/)
 - [ ] Sensirion SCD4x portable USB CO2 meter
+- [ ] Wynd Essential Air Purifier
 - [ ] COVID recovery fund ($500 / week, 6 weeks) <!-- 2021 calculations based on CERB allowances -->
 
 You can contribute directly to the COVID fund [via PayPal](https://www.paypal.me/bglamours).
