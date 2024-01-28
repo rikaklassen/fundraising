@@ -25,6 +25,12 @@ Price: $260
 Note: Trying to keep bestie as safe as possible during the COVID surges. This HEPA filter is recommended by Aaron Collins (@masknerd) on Twitter. Or contribute to the COVID fund: https://www.paypal.me/bglamours.
 
 Confirmation Message: Thank you for keeping bestie safe!
+##### Help with COVID safety net (for bestie)
+Price: $2000
+
+Note: Bestie doesn't want to go to work while there are over a 1 000 cases in Winnipeg at the moment. Or help her here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for keeping bestie safe!
 #### Employment Safety Net
 ##### Two nights off to take care of dogs (for bestie)
 Price: $320
@@ -86,6 +92,12 @@ Price: $600
 Note: Bestie had a bad day at work. She would appreciate a night off. Or contribute to her PayPal here: paypal.me/bglamours
 
 Confirmation Message: Thank you for making bestie's life a bit easier!
+##### Wage for full day work (for bestie)
+Price: $160 
+
+Note: Bestie is tired of working for tips and wants minimum wage as a waitress. In Finland, they don't tip and work for 12 euros/hour. Contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation: Thank you for making bestie's day a bit easier!
 ####  School Fund
 ##### Help with the Green Books (for bestie)
 Price: $190
@@ -117,12 +129,24 @@ Price: $160
 Note: Bestie needs a night off to do homework. Or contribute to her PayPal here: paypal.me/bglamours.
 
 Confirmation Message: Thank you for making bestie's life easier!
-##### Wage for full day work (for bestie)
-Price: $160 
+##### Help with student aid (for bestie)
+Price: $11900
 
-Note: Bestie is tired of working for tips and wants minimum wage as a waitress. In Finland, they don't tip and work for 12 euros/hour. Contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie got shortcharged by Manitoba Student Aid and need to study full-time. She is eligible for maximum $350 a week. Or contribute to her PayPal here: paypal.me/bglamours.
 
-Confirmation: Thank you for making bestie's day a bit easier!
+Confirmation Message: Thank you for helping bestie through college!
+##### Help with a night off from work (for bestie)
+Price: $600
+
+Note: Bestie had a horrible day at school due to failing an exam. Help her with a night off from work. Would help her study full-time. Or contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's days!
+##### Help with rent (for bestie)
+Price: $800
+
+Note: Besite will need some help with rent while going to college. Or pay it forward here: paypal.me/bglamours
+
+Confirmation Message: Thank you for helping bestie make the best of college!
 ##### Send a pizza (to bestie)
 Price: $20
 
