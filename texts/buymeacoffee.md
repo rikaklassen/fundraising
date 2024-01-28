@@ -99,6 +99,30 @@ Price: $37
 Note: Bestie was struggling with finding new vocabulary in American Sign Language without knowing the English word. This handshape dictionary would make everything easier. Here is her PayPal if you want to donate directly: paypal.me/bglamours.
 
 Confirmation Message: Thank you for helping bestie with her college degree!
+##### Night off for homework (for bestie)
+Price: $160
+
+Note: Bestie needs a night off from work to focus on homework. Or contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Help with rent (for bestie)
+Price: $800
+
+Note: Bestie needs a month's rent paid off to study for her exams. Or contribute here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Give a night off for homework (for bestie)
+Price: $160
+
+Note: Bestie needs a night off to do homework. Or contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Wage for full day work (for bestie)
+Price: $160 
+
+Note: Bestie is tired of working for tips and wants minimum wage as a waitress. In Finland, they don't tip and work for 12 euros/hour. Contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation: Thank you for making bestie's day a bit easier!
 ##### Send a pizza (to bestie)
 Price: $20
 
