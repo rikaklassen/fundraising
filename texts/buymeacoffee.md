@@ -56,7 +56,49 @@ Price: $40
 Note: Someone tipped 2.5% on a $200 meal at bestie's workplace. Help recover her stolen wage. Or contribute here: paypal.me/bglamours.
 
 Confirmation Message: Thank you for making bestie's life a bit easier!
+##### Night off from work (for bestie)
+Price: $600
+
+Note: Bestie had a terrible day at work and to top it off, she lost her dinner. Contribute to her PayPal here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Give a night off work (for bestie)
+Price: $600
+
+Note: Bestie had a hard night and needs a night off. Or contribute to her PayPal here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Wage for a full day-work (for bestie)
+Price: $160
+
+Note: Bestie got cut from work tonight. Help her here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
+##### Recover stolen cash (for bestie)
+Price: $87
+
+Note: Couchsurfing stole $87 from bestie. Or help her through PayPal here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's days!
+##### Help with a night off from work (for bestie)
+Price: $600
+
+Note: Bestie had a bad day at work. She would appreciate a night off. Or contribute to her PayPal here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's life a bit easier!
 ####  School Fund
+##### Help with the Green Books (for bestie)
+Price: $190
+
+Note: Bestie has the Signing Naturally books as well as A Basic Course, but she is missing The Green Books which is another set of books used in teaching American Sign Language. If you want to donate to her directly instead, here is her PayPal: paypal.me/bglamours.
+
+Confirmation Message: Thank you for helping bestie with her college degree!
+##### Help with a sign language dictionary (for bestie)
+Price: $37
+
+Note: Bestie was struggling with finding new vocabulary in American Sign Language without knowing the English word. This handshape dictionary would make everything easier. Here is her PayPal if you want to donate directly: paypal.me/bglamours.
+
+Confirmation Message: Thank you for helping bestie with her college degree!
 ##### Send a pizza (to bestie)
 Price: $20
 
@@ -70,3 +112,9 @@ Price: $200
 Note: Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/bglamours
 
 Confirmation Message: Thank you for making bestie's days a little bit easier
+##### Buy a knee brace (for bestie)
+Price: $40
+
+Note: Bestie needs a knee brace to function at work tonight. Or help her directly here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life easier!
