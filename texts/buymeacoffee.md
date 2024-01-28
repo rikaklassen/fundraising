@@ -142,3 +142,10 @@ Price: $40
 Note: Bestie needs a knee brace to function at work tonight. Or help her directly here: paypal.me/bglamours.
 
 Confirmation Message: Thank you for making bestie's life easier!
+#### Cat Fund
+##### Gift a cat tree (to bestie's kitty)
+Price: $180 
+
+Note: Bestie wants a cat tree for Nala! Or contribute to the kitty fund here: paypal.me/bglamours
+
+Confirmation Message: Thank you for spoiling Nala!
