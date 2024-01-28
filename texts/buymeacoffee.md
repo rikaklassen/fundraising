@@ -1,32 +1,72 @@
 # Buy Me A Coffee
 ### Wishlist
-#### Help with prescription meds (for bestie)
-Price: $200
-
-Note: Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/bglamours
-
-Confirmation Message: Thank you for making bestie's days a little bit easier
-#### Corsi–Rosenthal Box (to keep bestie safe)
+#### COVID Fund
+##### Corsi–Rosenthal Box (to keep bestie safe)
 Price: $100
 
 Note: Affordable DIY HEPA filters. It's recommended to keep air quality below 620 ppm CO2 to reduce COVID transmission. Or contribute to the COVID fund here: https://www.paypal.me/bglamours.
 
 Confirmation Message: Thank you for keeping bestie safe!
-#### Home air quality meter (to keep bestie safe)
+##### Home air quality meter (to keep bestie safe)
 Price: $270
 
 Note: It's advised to keep the CO2 level under 620 ppm indoor to reduce COVID transmission. Or contribute directly to the COVID fund: https://www.paypal.me/bglamours.
 
 Conformation Message: Thank you for keeping bestie safe!
-#### Portable CO2 meter (to keep bestie safe)
+##### Portable CO2 meter (to keep bestie safe)
 Price: $100
 
 Note: To stay safe during COVID surges, one would need to stay under 620 ppm. This portable CO2 meter is recommended by Noami Wu for going out in public spaces. Contribute directly to the COVID funds here: https://www.paypal.me/bglamours.
 
 Confirmation Message: Thank you for keeping bestie safe!
-#### HEPA filter (to keep bestie safe)
+##### HEPA filter (to keep bestie safe)
 Price: $260
 
 Note: Trying to keep bestie as safe as possible during the COVID surges. This HEPA filter is recommended by Aaron Collins (@masknerd) on Twitter. Or contribute to the COVID fund: https://www.paypal.me/bglamours.
 
 Confirmation Message: Thank you for keeping bestie safe!
+#### Employment Safety Net
+##### Two nights off to take care of dogs (for bestie)
+Price: $320
+
+Note: Bestie needs two nights off to take care of two senior Golden Retrievers. Or contribute directly: paypal.me/bglamours.
+
+Conformation Message: Thank you for making bestie's life a little bit easier!
+##### Recover stolen wage (for bestie)
+Price: $140
+
+Note: Bestie is making garbage tips at work lately. Or help her directly here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's days a little bit better!
+##### Financial aid (for bestie)
+Price: $2000
+
+Note: Bestie has a few last-minute bills to pay before going on her homeland trip in Germany. Or contribute directly here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's days a bit better!
+##### Help with an employment safety net (for bestie)
+Price: $1500
+
+Note: Bestie is looking for a new job. Situation at her workplace has changed. $1 500 will go a long way in securing stability and guaranteeing peace of mind for her. Here is her PayPal: paypal.me/bglamours. Thank you!
+
+Confirmation Message: Thank you for providing stability for my bestie!
+##### Recover wage theft (for bestie)
+Price: $40 
+
+Note: Someone tipped 2.5% on a $200 meal at bestie's workplace. Help recover her stolen wage. Or contribute here: paypal.me/bglamours.
+
+Confirmation Message: Thank you for making bestie's life a bit easier!
+####  School Fund
+##### Send a pizza (to bestie)
+Price: $20
+
+Note: Bestie did excellent on her ASL exams today. Send her a pizza: paypal.me/bglamours.
+
+Confirmation Message: Thank you for supporting her grades!
+#### Medical Fund
+##### Help with prescription meds (for bestie)
+Price: $200
+
+Note: Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/bglamours
+
+Confirmation Message: Thank you for making bestie's days a little bit easier
