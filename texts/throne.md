@@ -141,7 +141,7 @@ Help bestie with going through her second year of college. Or contribute to her 
 #### [bestie's school] second year tuition
 6077 CAD (subject to change)
 Bestie is going to college to become an ASL interpreter. Or contribute directly: paypal.me/bglamours.
-### Misc
+### Employment Safety Net
 #### [help bestie] a night off from work
 100 EUR
 Bestie's workplace is overbooked and she needs a break. Or contribute directly: paypal.me/bglamours
@@ -202,6 +202,10 @@ Bestie is looking for a new job. Situation at her workplace has changed. Here is
 #### [help bestie] night off to take care of dogs
 150 EUR
 Bestie needs two nights off to take care of two senior Golden Retrievers. Or contribute directly here: paypal.me/bglamours.
+### Medical Expenses
+#### [help bestie] knee brace
+40 USD
+Bestie needs a knee brace to function at work today. Or contribute directly here: paypal.me/bglamours.
 #### [help bestie] prescription medicine
 200 CAD
 Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/bglamours
