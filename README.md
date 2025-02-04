@@ -14,7 +14,7 @@ Here are the adjusted tutiion and fees for 2023:
 
 Laptop required, but there is no number on how much the laptop should cost. Estimates only; subject to change. Does not include other costs of living such as rent, groceries and utilities.
 
-She does have a [PayPal account](https://www.paypal.me/bglamours).
+She does have a [PayPal account](https://www.paypal.me/dessi66).
 #### COVID Safety
 - [ ] Airthereal AGH550 HEPA filter
 - [ ] Aranet4 air quality meter
@@ -24,7 +24,7 @@ She does have a [PayPal account](https://www.paypal.me/bglamours).
 - [ ] Wynd Essential Air Purifier
 - [ ] COVID recovery fund ($500 / week, 6 weeks) <!-- 2021 calculations based on CERB allowances -->
 
-You can contribute directly to the COVID fund [via PayPal](https://www.paypal.me/bglamours).
+You can contribute directly to the COVID fund [via PayPal](https://www.paypal.me/dessi66).
 
 ## Wrapping Up
 ### First Year (2021 - 2022) of College
@@ -43,7 +43,7 @@ She will need:
 
 Does not include rent ($840 CAD/month), utilities or other costs of living.
 
-She does have a [PayPal account](https://www.paypal.me/bglamours) of her own.
+She does have a [PayPal account](https://www.paypal.me/dessi66) of her own.
 ## Pending
 ### Third Year of College
 - [ ] $6,077 CAD for tuition and student fees (per year)
@@ -55,4 +55,4 @@ She does have a [PayPal account](https://www.paypal.me/bglamours) of her own.
 
 Not final. Estimates only; subject to change.
 
-Future funds can go towards her [PayPal](https://www.paypal.me/bglamours).
+Future funds can go towards her [PayPal](https://www.paypal.me/dessi66).
