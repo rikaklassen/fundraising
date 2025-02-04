@@ -95,81 +95,81 @@ Confirmation Message: Thank you for making bestie's life a bit easier!
 ##### Wage for full day work (for bestie)
 Price: $160 
 
-Note: Bestie is tired of working for tips and wants minimum wage as a waitress. In Finland, they don't tip and work for 12 euros/hour. Contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie is tired of working for tips and wants minimum wage as a waitress. In Finland, they don't tip and work for 12 euros/hour. Contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation: Thank you for making bestie's day a bit easier!
 ####  School Fund
 ##### Help with the Green Books (for bestie)
 Price: $190
 
-Note: Bestie has the Signing Naturally books as well as A Basic Course, but she is missing The Green Books which is another set of books used in teaching American Sign Language. If you want to donate to her directly instead, here is her PayPal: paypal.me/bglamours.
+Note: Bestie has the Signing Naturally books as well as A Basic Course, but she is missing The Green Books which is another set of books used in teaching American Sign Language. If you want to donate to her directly instead, here is her PayPal: paypal.me/dessi66.
 
 Confirmation Message: Thank you for helping bestie with her college degree!
 ##### Help with a sign language dictionary (for bestie)
 Price: $37
 
-Note: Bestie was struggling with finding new vocabulary in American Sign Language without knowing the English word. This handshape dictionary would make everything easier. Here is her PayPal if you want to donate directly: paypal.me/bglamours.
+Note: Bestie was struggling with finding new vocabulary in American Sign Language without knowing the English word. This handshape dictionary would make everything easier. Here is her PayPal if you want to donate directly: paypal.me/dessi66.
 
 Confirmation Message: Thank you for helping bestie with her college degree!
 ##### Night off for homework (for bestie)
 Price: $160
 
-Note: Bestie needs a night off from work to focus on homework. Or contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie needs a night off from work to focus on homework. Or contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Help with rent (for bestie)
 Price: $800
 
-Note: Bestie needs a month's rent paid off to study for her exams. Or contribute here: paypal.me/bglamours.
+Note: Bestie needs a month's rent paid off to study for her exams. Or contribute here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Give a night off for homework (for bestie)
 Price: $160
 
-Note: Bestie needs a night off to do homework. Or contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie needs a night off to do homework. Or contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Help with student aid (for bestie)
 Price: $11900
 
-Note: Bestie got shortcharged by Manitoba Student Aid and need to study full-time. She is eligible for maximum $350 a week. Or contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie got shortcharged by Manitoba Student Aid and need to study full-time. She is eligible for maximum $350 a week. Or contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for helping bestie through college!
 ##### Help with a night off from work (for bestie)
 Price: $600
 
-Note: Bestie had a horrible day at school due to failing an exam. Help her with a night off from work. Would help her study full-time. Or contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie had a horrible day at school due to failing an exam. Help her with a night off from work. Would help her study full-time. Or contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's days!
 ##### Help with rent (for bestie)
 Price: $800
 
-Note: Besite will need some help with rent while going to college. Or pay it forward here: paypal.me/bglamours
+Note: Besite will need some help with rent while going to college. Or pay it forward here: paypal.me/dessi66
 
 Confirmation Message: Thank you for helping bestie make the best of college!
 ##### Send a pizza (to bestie)
 Price: $20
 
-Note: Bestie did excellent on her ASL exams today. Send her a pizza: paypal.me/bglamours.
+Note: Bestie did excellent on her ASL exams today. Send her a pizza: paypal.me/dessi66.
 
 Confirmation Message: Thank you for supporting her grades!
 #### Medical Fund
 ##### Help with prescription meds (for bestie)
 Price: $200
 
-Note: Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/bglamours
+Note: Bestie paid over $200 in prescriptions. Or help her out directly here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's days a little bit easier
 ##### Buy a knee brace (for bestie)
 Price: $40
 
-Note: Bestie needs a knee brace to function at work tonight. Or help her directly here: paypal.me/bglamours.
+Note: Bestie needs a knee brace to function at work tonight. Or help her directly here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 #### Cat Fund
 ##### Gift a cat tree (to bestie's kitty)
 Price: $180 
 
-Note: Bestie wants a cat tree for Nala! Or contribute to the kitty fund here: paypal.me/bglamours
+Note: Bestie wants a cat tree for Nala! Or contribute to the kitty fund here: paypal.me/dessi66
 
 Confirmation Message: Thank you for spoiling Nala!
