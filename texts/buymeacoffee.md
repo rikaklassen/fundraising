@@ -4,92 +4,92 @@
 ##### Corsi–Rosenthal Box (to keep bestie safe)
 Price: $100
 
-Note: Affordable DIY HEPA filters. It's recommended to keep air quality below 620 ppm CO2 to reduce COVID transmission. Or contribute to the COVID fund here: https://www.paypal.me/bglamours.
+Note: Affordable DIY HEPA filters. It's recommended to keep air quality below 620 ppm CO2 to reduce COVID transmission. Or contribute to the COVID fund here: https://www.paypal.me/dessi66.
 
 Confirmation Message: Thank you for keeping bestie safe!
 ##### Home air quality meter (to keep bestie safe)
 Price: $270
 
-Note: It's advised to keep the CO2 level under 620 ppm indoor to reduce COVID transmission. Or contribute directly to the COVID fund: https://www.paypal.me/bglamours.
+Note: It's advised to keep the CO2 level under 620 ppm indoor to reduce COVID transmission. Or contribute directly to the COVID fund: https://www.paypal.me/dessi66.
 
 Conformation Message: Thank you for keeping bestie safe!
 ##### Portable CO2 meter (to keep bestie safe)
 Price: $100
 
-Note: To stay safe during COVID surges, one would need to stay under 620 ppm. This portable CO2 meter is recommended by Noami Wu for going out in public spaces. Contribute directly to the COVID funds here: https://www.paypal.me/bglamours.
+Note: To stay safe during COVID surges, one would need to stay under 620 ppm. This portable CO2 meter is recommended by Noami Wu for going out in public spaces. Contribute directly to the COVID funds here: https://www.paypal.me/dessi66.
 
 Confirmation Message: Thank you for keeping bestie safe!
 ##### HEPA filter (to keep bestie safe)
 Price: $260
 
-Note: Trying to keep bestie as safe as possible during the COVID surges. This HEPA filter is recommended by Aaron Collins (@masknerd) on Twitter. Or contribute to the COVID fund: https://www.paypal.me/bglamours.
+Note: Trying to keep bestie as safe as possible during the COVID surges. This HEPA filter is recommended by Aaron Collins (@masknerd) on Twitter. Or contribute to the COVID fund: https://www.paypal.me/dessi66.
 
 Confirmation Message: Thank you for keeping bestie safe!
 ##### Help with COVID safety net (for bestie)
 Price: $2000
 
-Note: Bestie doesn't want to go to work while there are over a 1 000 cases in Winnipeg at the moment. Or help her here: paypal.me/bglamours.
+Note: Bestie doesn't want to go to work while there are over a 1 000 cases in Winnipeg at the moment. Or help her here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for keeping bestie safe!
 #### Employment Safety Net
 ##### Two nights off to take care of dogs (for bestie)
 Price: $320
 
-Note: Bestie needs two nights off to take care of two senior Golden Retrievers. Or contribute directly: paypal.me/bglamours.
+Note: Bestie needs two nights off to take care of two senior Golden Retrievers. Or contribute directly: paypal.me/dessi66.
 
 Conformation Message: Thank you for making bestie's life a little bit easier!
 ##### Recover stolen wage (for bestie)
 Price: $140
 
-Note: Bestie is making garbage tips at work lately. Or help her directly here: paypal.me/bglamours
+Note: Bestie is making garbage tips at work lately. Or help her directly here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's days a little bit better!
 ##### Financial aid (for bestie)
 Price: $2000
 
-Note: Bestie has a few last-minute bills to pay before going on her homeland trip in Germany. Or contribute directly here: paypal.me/bglamours
+Note: Bestie has a few last-minute bills to pay before going on her homeland trip in Germany. Or contribute directly here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's days a bit better!
 ##### Help with an employment safety net (for bestie)
 Price: $1500
 
-Note: Bestie is looking for a new job. Situation at her workplace has changed. $1 500 will go a long way in securing stability and guaranteeing peace of mind for her. Here is her PayPal: paypal.me/bglamours. Thank you!
+Note: Bestie is looking for a new job. Situation at her workplace has changed. $1 500 will go a long way in securing stability and guaranteeing peace of mind for her. Here is her PayPal: paypal.me/dessi66. Thank you!
 
 Confirmation Message: Thank you for providing stability for my bestie!
 ##### Recover wage theft (for bestie)
 Price: $40 
 
-Note: Someone tipped 2.5% on a $200 meal at bestie's workplace. Help recover her stolen wage. Or contribute here: paypal.me/bglamours.
+Note: Someone tipped 2.5% on a $200 meal at bestie's workplace. Help recover her stolen wage. Or contribute here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life a bit easier!
 ##### Night off from work (for bestie)
 Price: $600
 
-Note: Bestie had a terrible day at work and to top it off, she lost her dinner. Contribute to her PayPal here: paypal.me/bglamours.
+Note: Bestie had a terrible day at work and to top it off, she lost her dinner. Contribute to her PayPal here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Give a night off work (for bestie)
 Price: $600
 
-Note: Bestie had a hard night and needs a night off. Or contribute to her PayPal here: paypal.me/bglamours
+Note: Bestie had a hard night and needs a night off. Or contribute to her PayPal here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Wage for a full day-work (for bestie)
 Price: $160
 
-Note: Bestie got cut from work tonight. Help her here: paypal.me/bglamours.
+Note: Bestie got cut from work tonight. Help her here: paypal.me/dessi66.
 
 Confirmation Message: Thank you for making bestie's life easier!
 ##### Recover stolen cash (for bestie)
 Price: $87
 
-Note: Couchsurfing stole $87 from bestie. Or help her through PayPal here: paypal.me/bglamours
+Note: Couchsurfing stole $87 from bestie. Or help her through PayPal here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's days!
 ##### Help with a night off from work (for bestie)
 Price: $600
 
-Note: Bestie had a bad day at work. She would appreciate a night off. Or contribute to her PayPal here: paypal.me/bglamours
+Note: Bestie had a bad day at work. She would appreciate a night off. Or contribute to her PayPal here: paypal.me/dessi66
 
 Confirmation Message: Thank you for making bestie's life a bit easier!
 ##### Wage for full day work (for bestie)
